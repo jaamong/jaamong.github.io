@@ -1,1 +1,0 @@
-# jaamong.github.io
